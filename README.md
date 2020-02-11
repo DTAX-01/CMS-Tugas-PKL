@@ -1,0 +1,3 @@
+# WARNING!!
+
+Kalo lu mau panjang umur, jangan coba coba maen **Java Spring**!! wkwkwk...
